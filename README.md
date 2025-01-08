@@ -1,0 +1,1 @@
+Welcome to HomeHaven Properties, your trusted partner in finding the perfect place to call home. With a wide selection of residential properties, we prioritize comfort, quality, and community living. From modern apartments to luxurious villas, we ensure your needs are met with care and professionalism. Explore your dream home today with HomeHaven!
